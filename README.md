@@ -36,5 +36,5 @@
     >> Moufida Tlatli, Silences of the Palace
     >> Jameson “Third-World Literature in the Era of Multinational Capitalism”
     >> How East and West think in profoundly different ways - BBC Future
-        
+    >> Kincaid, Jamaica - A Small Place-Farrar, Straus and Giroux (2000)
 --
