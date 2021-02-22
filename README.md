@@ -37,4 +37,20 @@
     >> Jameson “Third-World Literature in the Era of Multinational Capitalism”
     >> How East and West think in profoundly different ways - BBC Future
     >> Kincaid, Jamaica - A Small Place-Farrar, Straus and Giroux (2000)
---
+
+# VI. DISCUSSION SUPPLEMENTS
+
+      Feb 15 - Franz Fanon’s Legacy
+      .Culture/Colonialism
+      >> Franz Fanon Black Skin, White Mask chapters 1,2, 7,8
+
+      Feb 17 - In class screening of Isaac Julien’s film: Franz Fanon Black Skin, White Masks (1995)
+ 
+
+# VII. DISCUSSION SUPPLEMENTS
+
+      Feb 22 - Colonialism, Capitalism, Culture
+      >>Jamaica Kincaid, A Small Place
+
+      Feb 24
+      >> Aimé Césaire Discourse on Colonialism
