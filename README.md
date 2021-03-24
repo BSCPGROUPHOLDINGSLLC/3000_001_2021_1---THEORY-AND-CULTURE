@@ -1,5 +1,4 @@
-# THEORY AND CULTURE ANALYSIS SUMMARY
-
+# THEORY AND CULTURE
 # I.        THEORIZING CULTURE: THE STRUCTURAL TURN
       >> Levi-Straus, “Race, History, Culture”
       >> Ortner, “Is Female to Male like Nature to Culture?
