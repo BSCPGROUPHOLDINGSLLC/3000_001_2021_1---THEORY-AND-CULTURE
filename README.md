@@ -98,7 +98,13 @@
       - Hélène Cixous, “The Laugh of the Medusa”
       - Judith Butler, Gender Trouble selections
       
-      ## XXX
+ ###   [NCAA] LOVE & BASKETBALL 
+      >> see also: https://www.ncaa.com/brackets/basketball-women/d1/2021
+      >> https://www.nytimes.com/2021/03/18/sports/ncaabasketball/ncaa-free-throw-record-colorado-oral-roberts.html
+            + Michael Jordan was player of the year; and 
+            + Harvard shot 82.2 percent from the free-throw line (75% = A+)
+                  see also: Dealers & Dreamers
+            + Oral Roberts now leads the nation in free-throws; having made 364 of 442, `82.35%.
       
       Mar 24 - Race, Class, and Women in modern culture
       
@@ -106,13 +112,7 @@
       - Kimberle Crenshaw, “Demarginalizing the Intersection of Race and Sex”
       - Gayatri Reddy, CH 3, 6(BONUS)
       
-      ## [NCAA] LOVE & BASKETBALL 
-      >> see also: https://www.ncaa.com/brackets/basketball-women/d1/2021
-      >> https://www.nytimes.com/2021/03/18/sports/ncaabasketball/ncaa-free-throw-record-colorado-oral-roberts.html
-            + Michael Jordan was player of the year; and 
-            + Harvard shot 82.2 percent from the free-throw line (75% = A+)
-                  see also: Dealers & Dreamers
-            + Oral Roberts now leads the nation in free-throws; having made 364 of 442, `82.35%.
+
  
  # XII.     BEYOND THE WEST, BEYOND BINARIES
  
