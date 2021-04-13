@@ -143,8 +143,11 @@
  
  # XIV.     REVIEW OF THEORY AND MODERN CULTURE
      
-      Apr 12 -    NaN
+      Apr 12 -    Marxism, & Co.
       
       Apr 14 -    Discussion (Closing arguments)
+                  http://heymancenter.org/events/celebrating-recent-work-by-hamid-dabashi-1/
+
+
       
  # XV.     CLOSING WEEK / FINALS
